@@ -1,2 +1,0 @@
-# suzheyang.github.io
-BLOG
